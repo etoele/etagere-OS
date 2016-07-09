@@ -41,4 +41,4 @@ Components :
 
 - Wood, nothing else needed.
 
-**Follow US** on [http://etoele.com/etoele](http://etoele.com/etoele)
+**Follow US** on [http://etoele.com/etoele](http://twitter.com/etoele)
